@@ -32,12 +32,20 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Hels torments, and heavens glorie1601Approx. 92 KB of XML-encoded text transcribed from 93 1-bit gro
+
+1. ❧ To the Reader.
+
 #####Body#####
+STrike saile, poore soule, in sins tempestuous tide,That runst to ruine and eternall wracke:Thy cour
+1. ¶ Of the punishments which our Lord threateneth unto such as live a sinfull life.
+WHo loves this life, frō love his love doth erre,And chusing drosse, rich treasure doth denie,Leavi
+1. ❧ Of the glorie of the blessed Saints in Heaven.
 
-1. ¶ Of the benefites which our Lord promiseth to give in this present life, to such as live a iust and godly life.
+    _ ¶ Of the benefites which our Lord promiseth to give in this present life, to such as live a iust and godly life.
 
-1. ¶ That a man ought not to deferre his repentance and conversion unto God, from day to day: considering hee hath so many debts to discharge, by reason of the offences committed in his sinfull life alredie past.
+    _ ¶ That a man ought not to deferre his repentance and conversion unto God, from day to day: considering hee hath so many debts to discharge, by reason of the offences committed in his sinfull life alredie past.
+
+1. ❧ The conclusion of all the premisses.
 
 **Types of content**
 
